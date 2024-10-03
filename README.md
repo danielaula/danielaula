@@ -9,5 +9,4 @@ Você pode entrar em contato comigo 📫
 
 daniel.rodrigues30@escola.pr.gov.br
 
-
 ![](https://media1.tenor.com/m/7q7FB3tN2WUAAAAd/motorcycle-amateur.gif)
